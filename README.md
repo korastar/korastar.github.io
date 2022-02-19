@@ -1,1 +1,0 @@
-# korastar.github.io
